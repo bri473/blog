@@ -6,3 +6,11 @@ My summer before my senior year was completely different from any other summer b
 Moving past the basics, we dove straight into advanced techniques that pushed my creativity.we started by sculptong rings directly out of carving wax,preparing them to be cast into solid metal.but the hightlights were difinitely crafting our personal nameplates and learning the precise process behind making grillz . Both required an incredible level of precision and patience. To stir up our creativity , we took a trip to the Brooklyn Museum , where we focused on the Iris van Herpen fashion desgin exhibition. seeing her 3D printed garments and sculptural structures completely change how I look at my own project . it made me realize that things like namesplates and grillz aren't just accessories they are wearable art, engineering,and essential elements of modern style identity. 
 
 Looking back , this summer did more than just teach me how to shape metal and wax ;it completely reshaped my perspective on my future.As i head into my senoir year and look toward life after high school, my path feels clearer than ever.I am planning to study business Law with a specific focus on Real Estate. While jewelry desgin and real estae law might seem worlds apart on the suface , they both share the exact same core values,appreciation for structure , immense attention to detail and the drive to build something meaningful from scratch. 
+
+
+
+![My Summer Job](image/1700.jpg)
+
+![My Summer Job](image/1673.jpg)
+
+![My Summer Job](image/1680.jpg)
